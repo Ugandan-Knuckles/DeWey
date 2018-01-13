@@ -1,2 +1,2 @@
 # DeWey
-Dis is de whey my brudders!
+Dis is de wey my brudders!
